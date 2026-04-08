@@ -1,0 +1,1 @@
+us stocks only
